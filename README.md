@@ -16,4 +16,5 @@ Atividade 1: Trello
 https://trello.com/invite/b/i5gW7K7L/ATTIf8708154d56af5deab787c02266e6a5f89190B58/minha-meta
 https://trello.com/invite/b/tzJqQv6c/ATTIa0f860085590cb1dd7337f55bec6545c8AA7AFD1/gerenciador-de-tarefas #Christian Machado Paulo Ferreira Caio Henrique E Henrique Maciel
 https://trello.com/invite/b/tzJqQv6c/ATTIa0f860085590cb1dd7337f55bec6545c8AA7AFD1/gerenciador-de-tarefas
+[Christian Machado] link emprego dos sonhos https://docs.google.com/document/d/1huP0kA0XbcHGUoVdjnOtmA-OapD_sDu5g3hbgcDlEQU/edit?usp=sharing
 
